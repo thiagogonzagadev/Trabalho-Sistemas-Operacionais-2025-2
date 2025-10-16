@@ -1,0 +1,1 @@
+# Trabalho-Sistemas-Operacionais-2025-2
